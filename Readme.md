@@ -4,7 +4,8 @@
 
 ## Education
 
-- Non-degree, Postbaccalaureate Studies, May 2018 - August 2021, [Columbia University School of Professional Studies](https://sps.columbia.edu/)
+- PhD Candidate, Earth and Environmental Sciences, Expected 2026, [Columbia University Graduate School of Arts and Sciences](https://gsas.columbia.edu/)
+- Postbaccalaureate Studies, Non-degree, May 2018 - August 2021, [Columbia University School of Professional Studies](https://sps.columbia.edu/)
 - Bachelor of Science, Earth Science, Graduated May 2013, [Columbia University School of General Studies](https://gs.columbia.edu/)
 
 ## Research Interests
